@@ -126,7 +126,7 @@ SIN LIMITACIÓN DE LO ANTES MENCIONADO EN ESTA SECCIÓN, TIME INC, Y SUS AFILIAD
 
  
 
-23. Términos Suplementarios: Todo lo detallado en el manual de [a link](https://www.bancodelpacifico.com/BancoPacifico/media/pdf/GCorporativo/codigo-de-etica.pdf)
+23. Términos Suplementarios: Todo lo detallado en el manual de ética [link](https://www.bancodelpacifico.com/BancoPacifico/media/pdf/GCorporativo/codigo-de-etica.pdf)
 
 
 Estos Términos y Condiciones fueron corregidos 12/07/2020.
